@@ -1,1 +1,1 @@
-# Wallies Better Discord
+# walliesdesigns.github.io
